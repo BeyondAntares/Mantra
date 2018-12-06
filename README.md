@@ -11,7 +11,7 @@ You have failed so far but are only defeated the day you refuse trying.
 
 In life, you don't attract what you want. You attract what you are working towards. Fix everything you think is wrong with you and you'll start attracting the right people. 
 
-You are looking at the pyramid life gave you. If the foundation is damaged, the rest of the structure is weak. Now is the perfect time than any to start again. Make a new foundation for your life and build upone it. It will take time and it **will be hard**. However if you keep at it, you will be amazed at the life you can create for yourself. 
+You are looking at the pyramid life gave you. If the foundation is damaged, the rest of the structure is weak. Now is the perfect time than any to start again. Make a new foundation for your life and build upon it. It will take time and it **will be hard**. However if you keep at it, you will be amazed at the life you can create for yourself. 
 
 Short Term Goals:
 1. Wake up Early
